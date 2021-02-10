@@ -1,0 +1,7 @@
+# TRC-20
+Halal Coin HC is TRC-20 Token 
+
+WHITEPAPER 
+AIRDROPS
+PLANS
+FUTURE
